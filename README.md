@@ -1,5 +1,5 @@
 - 👋 Saluton! Mi estas @zoehes
-- 👀 Miajn interesojn estas pli 
+- 👀 Mi havas pliajn interesojn 
 - 🌱 Aktuale mi lernas ĉi tiu kaj tiea
 - 💞️ Bonvolu demandu min
 - 📫 tra ti ĉie konton
